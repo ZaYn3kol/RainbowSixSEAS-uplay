@@ -6,7 +6,7 @@ These ids posted on our Rainbow 6 SEAS Discord [Private gist only visible to mem
 
  - STEEL_in | @steelx#4050 | India
  - RR-Zantus | @Zantus#0861  | Malaysia
- - zayne78908 | @!Zayne:anchor::crossed_swords:#1656   | India
+ - ZaYn3kol | @!Zayne:anchor::crossed_swords:#1656   | India
  - laggyNITIN | @laggyNITIN:tm:#1162 | India
  - RR-Berserk | @Berserk#1184  | Singapore
  - RRE-SorryMyHoney | @Sora#0310 | Cambodia
@@ -57,3 +57,10 @@ These ids posted on our Rainbow 6 SEAS Discord [Private gist only visible to mem
  - weeaboo_warrior | joel.siberia#3082 | Malaysia
  - richarddoge8079 | Richard "Wanker" Lee#4274 | Malaysia
  - T.H.K_Youmu | guestlogin#9162 | Korea
+ - Vejovis21 | AlexNoya#1163 | Indonesia
+ - M0nster_S1ayer | Monster_Slayer#8235 | India
+ - gamoliser | gamoliser#7109 | India
+ - Vineeth_Slayer | Vineeth#8187 | India
+ - Liquid.Miracle_ | ? |?
+ - BK_73 | bharath#9922 | India
+ 
